@@ -1,2 +1,2 @@
 # 4p do wywalenia
-kuba tu byl
+kuba N tu był
